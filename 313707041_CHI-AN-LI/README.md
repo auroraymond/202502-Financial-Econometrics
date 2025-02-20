@@ -1,5 +1,1 @@
-#Map
 
-#Food
-
-#Smiles
