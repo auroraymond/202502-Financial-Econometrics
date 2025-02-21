@@ -25,8 +25,6 @@ I’ve always loved starch, but after I started working out, I fell in love with
 
 
 
-
-
 ## Smiles
 I love spending time to teach math to junior and senior high school students. Enjoy the joy and financial benefits that work brings. so that I can afford to work out and invest in trading.
 ###![S__45400067](https://github.com/user-attachments/assets/638e4f66-d4a3-4c97-9952-163436c73bf4)
