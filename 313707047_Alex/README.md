@@ -5,7 +5,7 @@ I was born in Kaohsiung City, a passionate countryside area in suothern Taiwan. 
 
 
 
-<img src="https://github.com/user-attachments/assets/119e97b5-2515-4a33-a48d-48f195eb7313" width="200">
+<img src="https://github.com/user-attachments/assets/119e97b5-2515-4a33-a48d-48f195eb7313" width="400">
 
 
 ## Food 
