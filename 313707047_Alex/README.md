@@ -9,7 +9,8 @@ I was born in Kaohsiung City, a passionate countryside area in suothern Taiwan. 
 ## Food 
 I’ve always loved starch, but after I started working out, I fell in love with protein. 
 ### ![S__45391882](https://github.com/user-attachments/assets/75b19b29-f965-4391-b75d-bd28c63f2e6c)
-### ![Uploading S__45391884.jpg…]()
+### !![S__45391884](https://github.com/user-attachments/assets/e1c1e41d-ac6d-4536-8c4f-99209a48f227)
+
 
 
 
