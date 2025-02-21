@@ -1,8 +1,14 @@
 # 202502-Financial-Econometrics
 
+*Created by Huei-Wen Teng on 20250217 Last updated on 20250217*
 
+##  1. README.md
 
-## List of Students
+In our README.md, add your links: 
+1. [My gitHUB webapge](https://venteng.github.io) 
+2. [My MFS](https://venteng.github.io/MFS.html) 
+
+## 2. List of Students
 
 | 中文姓名  | 學號       | 英文暱稱   | 系級                        | GitHub帳號/Email |
 |----------|-----------|----------|----------------------------|------------------|
