@@ -4,7 +4,8 @@
 
 ##  1. README.md
 
-In our README.md, add your links to introduce your self:
+In our README.md, add your two links to introduce yourslef. The following is my example: 
+
 1. [My gitHUB webapge](https://venteng.github.io) 
 2. [My MFS](https://venteng.github.io/MFS.html) 
 
