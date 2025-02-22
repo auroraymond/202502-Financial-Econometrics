@@ -7,12 +7,15 @@
 
 
 ## Map
-chen-ariel<img width="316" alt="image" src="https://github.com/user-attachments/assets/f47c3c32-29d0-4ce9-9e03-e7bf39579637" />
+<img width="482" alt="截圖 2025-02-22 上午11 05 06" src="https://github.com/user-attachments/assets/419bbc1b-8038-480c-804c-cb6336157f99" />
+
 
 
 ## Food
-chen-ariel<img width="316" alt="image" src="https://github.com/user-attachments/assets/c00024aa-ba2b-42d6-887d-911c8db5b8d9" />
+<img width="540" alt="截圖 2025-02-22 上午11 05 46" src="https://github.com/user-attachments/assets/141b97fd-0a69-44ee-8255-aa36d6ee3587" />
+
 
 ## Smiles
-chen-ariel<img width="316" alt="image" src="https://github.com/user-attachments/assets/62ba8632-faa1-4cdd-b05a-d794c25389db" />
+<img width="574" alt="截圖 2025-02-22 上午11 06 09" src="https://github.com/user-attachments/assets/f1618e13-9715-4ecc-8040-ff79988d2e44" />
+
 
