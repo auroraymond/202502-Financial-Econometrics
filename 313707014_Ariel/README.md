@@ -11,7 +11,7 @@
 
 
 ## Food
-<img width="500" alt="截圖 2025-02-22 上午11 14 44" src="https://github.com/user-attachments/assets/2b6fa88f-f5a6-48c7-9d96-4c2c3ebaa6b1" />
+<img width="891" alt="截圖 2025-02-22 上午11 14 44" src="https://github.com/user-attachments/assets/2b6fa88f-f5a6-48c7-9d96-4c2c3ebaa6b1" />
 
 
 ## Smiles
