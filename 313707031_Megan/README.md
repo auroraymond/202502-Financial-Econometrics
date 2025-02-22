@@ -7,7 +7,7 @@
 
 ## MAP
 
-<img width="600" src="[https://github.com/user-attachments/assets/xxxxxxxx-xxxx-xxxx-xxxx-xxxxxxxxxxxx](https://github.com/user-attachments/assets/7f140e23-b766-4880-ad18-60959e6f62a9)" />
+<img width="600" src="https://github.com/user-attachments/assets/7f140e23-b766-4880-ad18-60959e6f62a9" />
 
 
 ## FOOD
