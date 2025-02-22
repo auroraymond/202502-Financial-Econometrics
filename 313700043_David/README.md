@@ -9,8 +9,10 @@
 ![image](https://github.com/user-attachments/assets/e012b3ed-8e28-4e06-8aa8-fef8b6f9a300)
 
 
+
 ## Foods
-![image](https://github.com/user-attachments/assets/446a9b04-760d-4c03-88fe-2704e768a12a)
+![image](https://github.com/user-attachments/assets/1aaf0915-6a82-47c3-b903-012fddda94f7)
+
 
 
 ## Smiles
