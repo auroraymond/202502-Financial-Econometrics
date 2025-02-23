@@ -5,10 +5,11 @@
 
 
 ## Map
-![image](https://github.com/user-attachments/assets/db04dc42-e739-4265-b740-e4cb2e5457bc)
+![image](https://github.com/user-attachments/assets/ed56442e-d42c-4c8b-8486-93ab1a22148d)
 
 
 ## Food
+![image](https://github.com/user-attachments/assets/b4aae563-7a88-431f-b7e7-a26ea8e2d535)
 
 
 ## Smiles
