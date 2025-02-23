@@ -6,8 +6,7 @@
 
 
 ## Map
-![Taipei_Districts](https://github.com/user-attachments/assets/51f57b5e-86d8-4ea7-8612-173d45524bb1)
-
+![download](https://github.com/user-attachments/assets/46ccca2d-b304-4e3e-87f8-44911edfce37)
 
 
 
