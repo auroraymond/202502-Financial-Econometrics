@@ -9,7 +9,7 @@
 
 ## food
 
-![image](https://github.com/user-attachments/assets/c52191d6-2f53-4652-8c74-cee009dd844e)
+![image](https://github.com/user-attachments/assets/eec50a3b-e326-4a58-827c-4ebdc9a9a6cd)
 
 
 ## Smiles
