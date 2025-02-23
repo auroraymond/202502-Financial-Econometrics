@@ -12,7 +12,9 @@
 
 
 ## Food
+<img width="758" alt="image" src="https://github.com/user-attachments/assets/90ff04f4-841c-4009-93b3-b804b63369d6" />
 
 
 ## Smiles
+<img width="759" alt="image" src="https://github.com/user-attachments/assets/ce3f017a-c749-4edd-8c73-036b7fd25f70" />
 
