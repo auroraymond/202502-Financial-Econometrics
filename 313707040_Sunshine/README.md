@@ -13,6 +13,7 @@
 
 ## Food
 
+![Brown and Yellow Simple Indian Restaurant Food Menu Poster](https://github.com/user-attachments/assets/55cc8058-a12a-42ff-8048-dfca0bc3f87d)
 
 
 ## Smiles
