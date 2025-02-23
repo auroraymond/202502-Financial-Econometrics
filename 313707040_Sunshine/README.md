@@ -7,7 +7,8 @@
 
 ## Map
 
-![image](https://github.com/HWTeng-Teaching/202502-Financial-Econometrics/blob/main/313707040_Sunshine/Black%20and%20White%20Vintage%20Newspaper%20Tokyo%20Travel%20Poster.jpg)
+![Black and White Vintage Newspaper Tokyo Travel Poster](https://github.com/user-attachments/assets/c8fe9e4c-94f0-4274-9624-d6ad6fa16720)
+
 
 ## Food
 
