@@ -5,3 +5,4 @@
 ## Food
 ![image](https://github.com/Ariella1315/image/blob/main/2025-02-23_173810.png)
 ## smile
+![image](https://github.com/Ariella1315/image/blob/main/2025-02-23_183518.png)
