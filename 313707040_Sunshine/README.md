@@ -7,7 +7,8 @@
 
 ## Map
 
-![Black and White Vintage Newspaper Tokyo Travel Poster](https://github.com/user-attachments/assets/c8fe9e4c-94f0-4274-9624-d6ad6fa16720)
+![Black and White Vintage Newspaper Tokyo Travel Poster](https://github.com/user-attachments/assets/557dcaf3-5a9c-499f-beb5-93c46d3cedf6)
+
 
 
 ## Food
