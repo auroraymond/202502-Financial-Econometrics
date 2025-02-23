@@ -4,7 +4,7 @@
 
 ## maps
 
-![image](https://github.com/user-attachments/assets/5ebbd3a7-b74e-465d-ab9c-b8c6d0091b26)
+![image](https://github.com/user-attachments/assets/59fac7a7-d5f8-4008-a7a2-3c7852195b64)
 
 
 ## food
