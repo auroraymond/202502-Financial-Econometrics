@@ -12,5 +12,5 @@ I’m a huge ramen enthusiast—I could easily eat it for breakfast, lunch, and 
 During my New Year holiday in December 2023 and January 2024, I traveled to Osaka and Kyoto for seven days. Before returning home, I made sure to have one last bowl of ramen at the airport (as seen in the bottom-right image).
 
 # Smile
-![image](https://github.com/user-attachments/assets/1efc0acc-ec1f-4268-b7e3-13f838bf2e83)
+![image](https://github.com/user-attachments/assets/a939aafe-23f4-4793-948b-a222de30f180)
 I love traveling abroad, especially to Japan. In 2023, I visited Japan twice, exploring cities like Osaka, Tokyo, and Kyoto. The photos above were taken during my trips last year.
