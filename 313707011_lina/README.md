@@ -12,7 +12,7 @@
 
 
 ## Food
-<img width="1440" alt="截圖 2025-02-24 上午11 03 40" src="https://github.com/user-attachments/assets/975867a4-e155-4597-b4d0-3e34fc86ceb4" />
+<img width="1440" alt="截圖 2025-02-24 下午5 33 20" src="https://github.com/user-attachments/assets/d986c3d3-97bd-4078-a79c-da1619215cdb" />
 
 
 

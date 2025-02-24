@@ -1,5 +1,5 @@
 # Rich 黃紹瑋
-*created by allen on 20250222 Last updated on 20250222*
+*created by Rich on 20250222 Last updated on 20250222*
 
 [My github webpage](https://github.com/rich54598794)
 ## Map
