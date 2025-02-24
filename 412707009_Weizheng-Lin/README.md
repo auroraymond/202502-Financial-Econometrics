@@ -2,11 +2,11 @@
 
 [My gitHUB webapge](https://github.com/Weizheng-Lin)
 
-## maps
+## Maps
 
 
 
-## food
+## Food
 
 
 
