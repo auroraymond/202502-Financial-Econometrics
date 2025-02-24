@@ -3,7 +3,7 @@
 [My gitHUB webapge](https://github.com/Jiang-Wen-Hwang)
 
 ## maps
-#I founded my business in Hsinchu and have established companies in Hsinchu, Shanghai, and Suzhou. Our company specializes in the semiconductor
+# I founded my business in Hsinchu and have established companies in Hsinchu, Shanghai, and Suzhou. Our company specializes in the semiconductor
 ![image](https://github.com/user-attachments/assets/a5103449-bb8c-4c0d-8d39-709654ff3ed7)
 
 
