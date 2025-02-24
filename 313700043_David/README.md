@@ -6,17 +6,20 @@
 
 
 ## Maps
-<img width="935" alt="image" src="https://github.com/user-attachments/assets/bd2357f1-3092-424b-a425-8a498997beaa" />
+<img width="935" alt="image" src="https://github.com/user-attachments/assets/e74ede36-b8a8-48c5-9b84-cab66bd6de60" />
+
 
 
 
 
 ## Foods
-![image](https://github.com/user-attachments/assets/1aaf0915-6a82-47c3-b903-012fddda94f7)
+<img width="935" alt="image" src="https://github.com/user-attachments/assets/71193d3b-0f08-496c-890d-eb2980196a7c" />
+
 
 
 
 ## Smiles
-<img width="997" alt="image" src="https://github.com/user-attachments/assets/cf424636-7701-42a3-85fe-7bbe9ed437a7" />
+<img width="935" alt="image" src="https://github.com/user-attachments/assets/e3dfa84c-2f8d-4a6c-aeac-ab46559f87b1" />
+
 
 
