@@ -18,7 +18,7 @@
 
 
 
-## Smiles
+## Smile
 <img width="776" alt="image" src="https://github.com/user-attachments/assets/102fb787-c2c6-46e2-9478-de438f6d4476" />
 
 
