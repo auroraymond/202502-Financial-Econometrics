@@ -5,7 +5,8 @@
 
 
 ## Food
-![image](https://github.com/user-attachments/assets/7a844fa1-d7e1-4abd-bfca-a0d04ff49624)
+<img src="https://github.com/user-attachments/assets/7a844fa1-d7e1-4abd-bfca-a0d04ff49624" width="300" height="200">
+
 
 
 ## Smile
