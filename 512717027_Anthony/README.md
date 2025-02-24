@@ -13,4 +13,5 @@ During my New Year holiday in December 2023 and January 2024, I traveled to Osak
 
 # Smile
 ![image](https://github.com/user-attachments/assets/a939aafe-23f4-4793-948b-a222de30f180)
+
 I love traveling abroad, especially to Japan. In 2023, I visited Japan twice, exploring cities like Osaka, Tokyo, and Kyoto. The photos above were taken during my trips last year.
