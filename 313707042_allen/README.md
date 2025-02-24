@@ -6,7 +6,7 @@
 
 
 ## Map
-<img width="316" alt="image" src="[https://github.com/user-attachments/assets/0efb0b1c-9f6f-4f89-8f57-aa7e61044ce7](https://github.com/user-attachments/assets/34cabd75-1830-403f-a48c-14178f46e2a7)" />
+
 ![Image](https://github.com/user-attachments/assets/34cabd75-1830-403f-a48c-14178f46e2a7)
 ![Image](https://github.com/user-attachments/assets/20e3c557-561f-4b0f-b053-b783d384c09a)
 ![Image](https://github.com/user-attachments/assets/a0914bd6-9cdc-4a82-ba17-bf1e9e7d1846)
